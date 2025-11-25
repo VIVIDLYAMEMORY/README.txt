@@ -5,7 +5,7 @@
 
 
 ## INTRODUCTIONS <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/257b0f3b-db29-4ad6-8a01-acd8bc7c37fd" />
-hihihi !! i'm 𝘔𝘪𝘶𝘦𝘭𝘭𝘪𝘦 or *Vivid* you can call me 𝘔𝘪𝘶/𝘔𝘪𝘨𝘶𝘦𝘭 for short! ^_^ i go by 𝙨𝙝𝙚/𝙝𝙞𝙢
+hihihi !! i'm 𝘔𝘪𝘶𝘦𝘭𝘭𝘦 or *Vivid* you can call me 𝘔𝘪𝘶/𝘔𝘪𝘨𝘶𝘦𝘭 for short! ^_^ i go by 𝙨𝙝𝙚/𝙝𝙞𝙢
  , <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d6fece66-5de7-41cb-bf5c-ad6c6785c957" />
 i'm very silly and funny at some times so you are free to int! c+h is also encouraged so don't be shy <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/89a5d7de-2194-4dcf-a624-65bb7a2da5d8" />/silly
 i mostly use typing quirks AND use tone tags so please lmk if you don't want tonetags to be mentioned in my messages! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/857ed440-2b34-4ef2-926c-fcf98af3f4f3" /> so yeah thanks for reading the intro section :3
@@ -22,7 +22,7 @@ i mostly use typing quirks AND use tone tags so please lmk if you don't want ton
 
 
 ## INTERESTS <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5088ca12-ee5a-4cb3-99d0-93b0001ca6c8" />
-i'm interested innnnn....... UU & LS [unstable universe and lifesteal] Mortal Kombat , <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/84aec72b-3d2d-46ee-b646-f80773b82127" /> Forsaken , Evade  .. Supernatural , DOD <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6bca6f7c-cf9b-42ee-a009-5af83728a508" /> Danganronpa  ,, Eden's garden . Hannibal , Limbus company . Case 1225 ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5df1a4f9-d41d-4762-8972-86caeed84277" /> *[side note; i FW mystery [visual] novels and horror movies so you may recommend me some :3]* 
+i'm interested innnnn....... UU & LS [unstable universe and lifesteal] Mortal Kombat , <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/84aec72b-3d2d-46ee-b646-f80773b82127" /> , Evade  .. Supernatural , DOD <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6bca6f7c-cf9b-42ee-a009-5af83728a508" /> Danganronpa  ,, Eden's garden . Hannibal , Limbus company . Case 1225 ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5df1a4f9-d41d-4762-8972-86caeed84277" /> *[side note; i FW mystery [visual] novels and horror movies so you may recommend me some :3. and also i might yap about dangan and hannibal, so pls lmk if it makes u uncomfortable ^w^]* 
 
 
 **Hobbies** *!!*
@@ -34,7 +34,6 @@ i like to edit, animate, draw etc.. mostly participate in regi events ,, <img wi
  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e8c9cc8b-c3f7-4e89-976e-daa7ba86e75f" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5193a501-9ac9-4c8f-989d-1f90475fa4db" />  
 
  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a6d43384-b109-42cf-ae22-33357389b132" /> <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/722e5466-d301-46ee-a1e7-e6176bcde5ab" />
-
 
 
 
